@@ -1,13 +1,11 @@
 # carModels
 
-El Wishbone de Jaco, era un chasis que hicieron en el INA unos alumnos de Parrita
-estaba escondido en el cielo raso de un Bar. A todos los mataron en un prostibulo cerca de Quepos  ... 
-
 Toyota mr2 moment of inertia t=mr2α
 
-R/t de los Hondas en velocidad lineal y sin conciencia radial
+Joules times kinetic energy power 2 product momentum = Jeep four wheel drive
 
-A un alumno del INA que mato un compañero de taller le cortaron el brazo de control y cayo el rotation nuckle en la ambulancia siquiatrica Chevy Van
+Willys 1943 Mac Arthur had a macbook powerpc
 
+O sea que los hijueputas de momentum lindora tienen prostibulo y estudiaron en el INA en un razonamiento lineal de dos ecuaciones
 
 [![mueren embargadores acuchillados en pleito de embargo ... ](https://raw.githubusercontent.com/rgarro/carModels/main/willyschassis.PNG)]
