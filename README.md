@@ -1,6 +1,10 @@
 # carModels
 
-𝜏 = r product F is a blue RedBull
+### Complex Models For Rigging Car Industry Physics in further Unity3D Projects
+
+Chet Baker Trumphet is a Leaf spring, rebound clip his hands
+ 
+𝜏 = r product F is a Blue RedBull
 
 The three notes of Fast Car like a tangential wave on a flat road, 
 Fucking Tracy Chapman Delta F Dividing delta Time kinetic k*i*s power 2 on elevation
@@ -25,4 +29,4 @@ Dorje Shudgen = Dodge Challenger in Tibetan ....
 The Fifth Dalai Lama had a Dodge Challenger from the Future.
 
 
-[![acuchillados en pleito de embargo ... ](https://raw.githubusercontent.com/rgarro/carModels/main/willyschassis.PNG)]
+[![abogado de embargo tuerto en el chapui ... ](https://raw.githubusercontent.com/rgarro/carModels/main/willyschassis.PNG)]
