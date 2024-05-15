@@ -1,6 +1,7 @@
 # carModels
 
-### Complex Models For Rigging Car Industry Physics in further Unity3D Projects
+### Complex 3D Models For Rigging Car Industry Physics in further Unity3D Projects
+
 
 Chet Baker Trumphet is a Leaf spring, rebound clip his hands
  
@@ -29,4 +30,4 @@ Dorje Shudgen = Dodge Challenger in Tibetan ....
 The Fifth Dalai Lama had a Dodge Challenger from the Future.
 
 
-[![abogado de embargo tuerto en el chapui ... ](https://raw.githubusercontent.com/rgarro/carModels/main/willyschassis.PNG)]
+[![embargadores desangrados  a machetazos ,abogado de embargo tuerto en el chapui, mensajeros en estado de descompocision en el Zurqui ... ](https://raw.githubusercontent.com/rgarro/carModels/main/willyschassis.PNG)]
