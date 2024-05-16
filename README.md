@@ -3,31 +3,13 @@
 ### Complex 3D Models For Rigging Car Industry Physics in further Unity3D Projects
 
 
-Chet Baker Trumphet is a Leaf spring, rebound clip his hands
- 
-𝜏 = r product F is a Blue RedBull
-
-The three notes of Fast Car like a tangential wave on a flat road, 
-Fucking Tracy Chapman Delta F Dividing delta Time kinetic k*i*s power 2 on elevation
-remember ai - af/T 
-
-Chet Baker Romantic Ballads
-
-(I Fall In Love to Easily) = (π/180)/(9.8 m/s power 2)
-
-(I Fall In Love Too Fast) =  (Df - Di )/(Tf - Ti )
-
-Toyota MR2 moment of inertia t=mr2α mass product radius power Two times alpha
-
-2 times the corner in front of you with the weight of love (Fishing Is NOT a SIN)
-
-Chapman strut Toyota MR2 , Fucking Tracy Chapman driving the FAST CAR
-
-Joules times kinetic energy power 2 product momentum = Jeep four wheel drive
-
-Dorje Shudgen = Dodge Challenger in Tibetan .... 
-
-The Fifth Dalai Lama had a Dodge Challenger from the Future.
+Fucking Chet Baker was there in the final Vanishing Point 1972 scenes
 
 
-[![embargadores desangrados  a machetazos ,abogado de embargo tuerto en el chapui, mensajeros en estado de descompocision en el Zurqui ... ](https://raw.githubusercontent.com/rgarro/carModels/main/willyschassis.PNG)]
+Four hundred costarican guachimanes got murdered in the First Falluja Battle, their gringo bosses had to fight to death. 
+It takes 3 hours to assemble a Hummer, los guachimanes se dejaron los de ellos en cajas para venderlos despues y no pudieron irse rapido cuando los empezaron a degollar.
+
+
+
+
+[![vendedor de mota tintado de blanco por pederasta ... ](https://raw.githubusercontent.com/rgarro/carModels/main/willyschassis.PNG)]
