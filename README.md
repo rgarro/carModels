@@ -13,7 +13,7 @@ blowing the heat of the brakes into the gravitational darkness ,there might be a
 The Jeep Willys wheels are like a Chod Damaru, The Fifth Dalai Lama Had a Dodge Challenger from the future and drove it behid Marshall Rokossovsky jeep willys ..
 
 
-Private Moriarty was assembling a high definition microphone listening all the tangential waves being decode into an android car math coprocesor so General Patton could get his dashboard report, the local space shoulb be centered out of the Negative waves or you will have to figure out how to cool down all the work i the distances acrres heats and ideal gases ... 
+Private Moriarty was assembling a high definition microphone listening all the tangential waves being decode into an android car math coprocesor so General Patton could get his dashboard report, the local space should be centered out of the Negative waves or you will have to figure out how to cool down all the work in the distances gas moles across heats and ideal gases meantime centripetal pushing ... 
   
 
 [![vendedor de mota tintado de blanco por pederasta ... ](https://raw.githubusercontent.com/rgarro/carModels/main/willyschassis.PNG)]
