@@ -4,7 +4,7 @@
 
 Moriarty had faiD for the steering input delta and the road angle bank beta
 
-waging war Operation Focus waiting my SolidWorks id
+migs comming from yemmen, the prophet cousin smoking hashis 
 
 Kelly sold all the golden oregon kush
 
