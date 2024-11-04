@@ -2,11 +2,19 @@
 
 ### Complex 3D Models For Rigging Car Industry Physics in further Unity3D Projects
 
-Moriarty had faiD for the steering input delta and the road angle bank beta
+MORIARTI Negative waves
 
-migs comming from yemmen, the prophet cousin smoking hashis 
 
-Kelly sold all the golden oregon kush
+En CostaRica atacan ,roban ,secuestran a los Pensionados,
+ACUERDESE IRSE A OTRO PAIS Y SALVAR SU PENSION
+mi pension no es de ningun gay hondureno, mi pension no es para gays amputados
+mi pension NO ES DE RISAS!, mi pension NO ES DE KARATEKAS EDIONDOS,
+mi pension NO ES de boyscouts de purral, mi pension no es de lidiet ni de 
+ningun calvo playo ni de ningun religioso del INA ni de piedreros municipales,
+mi pension no es de Ana ni de ninguna puta de guapiles 
+mi pension no Es de tias falsas ni becados inventados 
+mi pension no es de Enriqueto, mi pension no es de los guachis, ni de los hermanillos de yota
+ 
 
 Chet Baker was there in the Vanishing Point 1972 final scenes
 
