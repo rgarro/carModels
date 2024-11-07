@@ -1,7 +1,10 @@
 # carModels
 
 ### Complex 3D Models For Rigging Car Industry Physics in further Unity3D Projects
+
+Ukraine lost the war already, they want to paint it like if they won to capture returning former trained foreign corrupt police officers 
  
+[![gol de saprissa ... ](https://raw.githubusercontent.com/rgarro/carModels/main/sherman.png)]
 
 Chet Baker was there in the Vanishing Point 1972 final scenes
 
