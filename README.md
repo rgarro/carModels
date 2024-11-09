@@ -2,7 +2,11 @@
 
 ### Complex 3D Models For Rigging Car Industry Physics in further Unity3D Projects
 
-Ukraine lost the war already, they want to paint it like if they won to capture returning former trained foreign corrupt police officers 
+Super Soul is Lehi making fun of Alma the chief of the priests
+
+Alma is an IBM robotic mainframe built in TelAviv 300 years in the future
+
+Mr Lehi and Sahara appear sometimes in the ESPN ... 
  
 [![gol de saprissa ... ](https://raw.githubusercontent.com/rgarro/carModels/main/sherman.png)]
 
